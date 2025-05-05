@@ -17,7 +17,7 @@
 
 - 😄 Pronouns:
 
-  he/him, for now ;)
+  she/her, for now ;)
 
 - ⚡ Fun fact:
 
